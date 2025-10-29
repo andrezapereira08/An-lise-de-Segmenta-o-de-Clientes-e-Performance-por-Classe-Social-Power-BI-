@@ -1,0 +1,1 @@
+# An-lise-de-Segmenta-o-de-Clientes-e-Performance-por-Classe-Social-Power-BI-
